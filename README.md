@@ -14,6 +14,8 @@ I will update the config every time there is an update, I hope you don't delete 
 
 - [All Config](https://www.imnoob59.eu.org)
 
+- [Mobile Legends Log VK](https://besargaji.com/hOHTfX)
+
 - [Pureflix Full Capture](https://besargaji.com/yyBa)
 
 - [codeacademy](https://besargaji.com/izgX4m1QRmUS)
