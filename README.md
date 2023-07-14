@@ -13,6 +13,10 @@ I will update the config every time there is an update, I hope you don't delete 
 - [Netflix Full Capture](https://www.imnoob59.eu.org)
 
 - [All Config](https://www.imnoob59.eu.org)
+
+- [Pureflix Full Capture](https://besargaji.com/yyBa)
+
+- [codeacademy](https://besargaji.com/izgX4m1QRmUS)
 ## Happy Cracking
 
 
