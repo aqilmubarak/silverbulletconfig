@@ -14,11 +14,11 @@ I will update the config every time there is an update, I hope you don't delete 
 
 - [All Config](https://www.imnoob59.eu.org)
 
-- [Mobile Legends Log VK](https://besargaji.com/hOHTfX)
+- [Mobile Legends Log VK](https://minichu,me)
 
-- [Pureflix Full Capture](https://besargaji.com/yyBa)
+- [Pureflix Full Capture](https://minichu.me)
 
-- [codeacademy](https://besargaji.com/izgX4m1QRmUS)
+- [codeacademy](https://minichu.me)
 ## Happy Cracking
 
 
